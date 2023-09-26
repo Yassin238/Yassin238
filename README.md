@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Yassin Behiri
+- 🌱 I’m currently learning to become a software engineer
+- 💞️ I’m looking to collaborate on various projects
+- 👀 I’m interested in copy pasting 
+- 📫 you can reach me on : Yassin.Behiri@polytechnicien.tn
